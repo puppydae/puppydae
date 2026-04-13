@@ -1,9 +1,9 @@
 
 <div align="center">
 
-<img width="100%" height="50%" alt=nya src="https://iili.io/BwMwkhP.png" />
+<img width="100%" height="50%" alt=nya src="https://iili.io/BwDEHgI.png" />
 
-<img width="50%" height="40%" alt=dae src="https://iili.io/BwXupQp.png" >
+<img width="50%" height="40%" alt=dae src="https://iili.io/BwDNSvR.png" >
 
 
 [**RENTRY**](https://rentry.co/pupdae) 　　　*𓏵*　　　 [**DISCORD**](https://discordapp.com/users/1230369275156369449)
@@ -23,4 +23,4 @@ miku 　 [poob](https://github.com/77N0LI)　  [kiko](https://github.com/luv4miz
 
 <div align="center">
   
-<img width="100%" height="50%" alt=nya src="https://iili.io/BwMweTB.png" />
+<img width="100%" height="50%" alt=nya src="https://iili.io/BwDEdJt.md.png" />
