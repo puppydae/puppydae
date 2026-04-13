@@ -1,16 +1,21 @@
-## Hi there 👋
 
-<!--
-**puppydae/puppydae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
 
-Here are some ideas to get you started:
+![img](https://iili.io/BwMwkhP.png)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[RENTRY](https://rentry.co/pupdae) 　　　𓏵　　　 [DISCORD](https://discordapp.com/users/1230369275156369449)
+
+︵︵︵︵︵︵︵
+
+
+![div](https://iili.io/BwW2p5X.md.png)
+
+
+oomfs 　♡
+
+[izo](https://github.com/colourfulpaws) 　[shizel](https://github.com/magicalbunnyemul)　 parrot　 miku
+
+
+<div align="center">
+  
+![img](https://iili.io/BwMweTB.md.png)
