@@ -16,7 +16,9 @@
 
 **oomfs** 　♡
 
-[izo](https://github.com/colourfulpaws) 　[shizel](https://github.com/magicalbunnyemul)　 parrot　 miku 　 [poob](https://github.com/77N0LI)　  [kiko](https://github.com/luv4mizi)
+[izo](https://github.com/colourfulpaws) 　[shizel](https://github.com/magicalbunnyemul)　 parrot　 
+
+miku 　 [poob](https://github.com/77N0LI)　  [kiko](https://github.com/luv4mizi)
 
 
 <div align="center">
