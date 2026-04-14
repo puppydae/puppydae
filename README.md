@@ -17,8 +17,6 @@
 
 <img width="70%" height="50%" alt=nya src="https://iili.io/BwW2p5X.png" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=l8gz2kfia7j2wa1h3unp8jc0g&cover_image=true&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=l8gz2kfia7j2wa1h3unp8jc0g&redirect=true)
-
 **oomfs** 　♡
 
 [izo](https://github.com/colourfulpaws) 　[shizel](https://github.com/magicalbunnyemul)　 parrot　 
