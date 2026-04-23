@@ -8,7 +8,8 @@
 
 <div align="center">
 <img width="50%" height="40%" alt=dae src="https://iili.io/BwDNSvR.png" >
-
+  
+bell　 irl
 
 [**RENTRY**](https://rentry.co/pupdae) 　　　*𓏵*　　　 [**DISCORD**](https://discordapp.com/users/1230369275156369449)
 
