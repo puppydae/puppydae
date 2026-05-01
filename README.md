@@ -20,7 +20,7 @@ bell　 irl
 
 **oomfs** 　♡
 
-[izo](https://github.com/colourfulpaws) 　　 parrot　 
+[izo](https://github.com/colourfulpaws) 　　 parrot 　　 [valk](https://github.com/valkkiez)
 
 [miku](https://github.com/iloveclairoshade) 　 [poob](https://github.com/77N0LI)　  [kiko](https://github.com/luv4mizi)
 
